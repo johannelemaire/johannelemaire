@@ -1,8 +1,4 @@
 ## Hi! I'm Johanne (she/her)👋
-**  ** 
- 
-#### Data Analysis | Data Visualization | Data Storytelling #certifiablytableau
-**  **
 
 
 I have 10+ years of analytics experience, a Master of Science in Economics, Engineering, and Management and a background in market analysis and product marketing. 
